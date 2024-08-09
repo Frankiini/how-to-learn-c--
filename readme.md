@@ -1,0 +1,1 @@
+setting up vscode, but im so tired to rested in cero 
